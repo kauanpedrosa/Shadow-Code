@@ -5,7 +5,7 @@
 - Kauan Pedrosa Marques da Silva – RA: 2401743
 - Murilo Leone Fernandes – RA: 2401735
 - Rafael Lima Reis – RA: 2401699
-- Yuri Souza MALTito - RA: 2401782
+- Yuri Souza Tito - RA: 2401782
 
 ---
 
